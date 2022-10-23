@@ -76,7 +76,6 @@ Conférence Est :
 | **Classement Equipe1-Equipe2** | **Équipe 1**   | **Équipe 2** | **Résultats** |
 | ----| ------------------ | -------------- | -------|
 | **1-2** | [Miami Heat](https://fr.wikipedia.org/wiki/Heat_de_Miami)  |  **[Boston Celtics](https://fr.wikipedia.org/wiki/Celtics_de_Boston)** | 3-**4** |
-_de_Milwaukee) | **4**-3 |
 
 ### Finale NBA 2022
 
